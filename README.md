@@ -1,2 +1,0 @@
-# ocay_jeffry
-Master
